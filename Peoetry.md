@@ -1,3 +1,4 @@
+Merge confilct resolved by removing first line
 If you're happy and you know it, ele error: True.
 Merge confilct resolved by removing first line
 All changes accepted

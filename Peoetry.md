@@ -2,7 +2,7 @@ If you don't have anything else you can use this:
 April is the cruellest month, breeding
 Lilacs out of the dead land, mixing
 Memory and desire, stirring
-Dull roots with spring rain.
+Dull roots with spring snow.
 Winter kept us warm, covering
 Earth in forgetful snow, feeding
 A little life with dried tubers.

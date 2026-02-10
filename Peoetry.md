@@ -9,7 +9,7 @@ Dull roots with spring snow.
 Winter kept us warm, covering
 Earth in forgetful snow, feeding
 A little life with dried tubers.
-Patrick added this line
+Patrick was here
 aaaaaaaaaaaaaaaaaaa
 
 wine is waste

@@ -1,5 +1,5 @@
 If you don't have anything else you can use this:
-April is the cruellest month, breeding
+April is the most tropical month, snorkeling
 Lilacs out of the dead land, mixing
 Memory and desire, stirring
 Dull roots with spring snow.
